@@ -1,6 +1,6 @@
 # Privacy Policy for Luntha App
 
-**Effective Date:** [27 April 2025
+**Effective Date:** 27 April 2025
 
 ## 1. Introduction
 
